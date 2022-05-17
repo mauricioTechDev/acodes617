@@ -22,7 +22,7 @@
 - 📄 Want to know about my experiences? -> [https://docs.google.com/document/d/1067gwTT-D-we_zksrNgQBv-zSoAiFTuQ/edit](https://docs.google.com/document/d/1067gwTT-D-we_zksrNgQBv-zSoAiFTuQ/edit)
 
 - ⚡ Fun fact: **I created my own NFT collection**
-- 
+
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=acodes617&label=Profile%20views&color=0e75b6&style=flat" alt="acodes617" /> </p>
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=acodes617" alt="acodes617" /></a> </p>
