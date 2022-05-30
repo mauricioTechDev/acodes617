@@ -15,7 +15,7 @@
 
 - 📫 How to reach me: **adocantocodes@gmail.com**
 
-- 📄 Want to know about my experiences? -> [https://docs.google.com/document/d/1067gwTT-D-we_zksrNgQBv-zSoAiFTuQ/edit](https://docs.google.com/document/d/1067gwTT-D-we_zksrNgQBv-zSoAiFTuQ/edit)
+- 📄 Want to know about my experiences? -> [https://www.canva.com/design/DAFCIyWvm2k/UiSMxY7mgaxyrNYPae3WjA/edit?utm_content=DAFCIyWvm2k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFCIyWvm2k/UiSMxY7mgaxyrNYPae3WjA/edit?utm_content=DAFCIyWvm2k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 - ⚡ Fun fact: **I created my own NFT collection**
 
